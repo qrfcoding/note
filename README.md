@@ -1,0 +1,2 @@
+# note
+daily record
